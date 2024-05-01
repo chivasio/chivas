@@ -18,4 +18,4 @@
 
 <p align="center"
 
-<img src="https://blinkies.cafe/b/blinkiesCafe-4B.gif" /> <img src="https://files.catbox.moe/pob6ye.gif" /> <img src="https://blinkies.cafe/b/blinkiesCafe-yU.gif" />
+<img src="https://files.catbox.moe/mlvtio.gif" /> <img src="https://files.catbox.moe/pob6ye.gif" /> <img src="https://files.catbox.moe/nfyvs2.gif" />
